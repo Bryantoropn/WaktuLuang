@@ -1,1 +1,0 @@
-# WaktuKosong
